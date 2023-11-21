@@ -1,0 +1,2 @@
+# -gelecekhedefi
+hedeflerim
